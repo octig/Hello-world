@@ -1,3 +1,3 @@
 # Hello-world
 Ideas deposit and discussion 
-design engineer from Sandhurst, hobbies includ Cricket, science, reading and chess.
+I'm a design engineer from Sandhurst, hobbies include Cricket, science, reading and chess.
